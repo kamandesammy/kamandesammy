@@ -20,7 +20,7 @@ Welcome to my GitHub profile!
 ## 📫 How to reach me
 - ✉️ Email: kamandesammy.sk@gmail.com
 - 📱 Phone: +254 705 177 597
-- 💼 LinkedIn: [Samuel Kamande](https://linkedin.com/in/samuelkamande) *(if you have one)*
+- 💼 LinkedIn: [Samuel Kamande](https://linkedin.com/in/samuelkamande)
 - 🌍 Hashtags: `#GodsNumberOneDeejay` `#DjSamKe` `#MilanProd254`
 
 ---
